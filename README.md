@@ -21,3 +21,6 @@
 ![swirl](https://files.catbox.moe/jcoro6.gif)![swirl](https://files.catbox.moe/jcoro6.gif)![swirl](https://files.catbox.moe/jcoro6.gif)![swirl](https://files.catbox.moe/jcoro6.gif)![swirl](https://files.catbox.moe/jcoro6.gif)![swirl](https://files.catbox.moe/jcoro6.gif)![swirl](https://files.catbox.moe/jcoro6.gif)![swirl](https://files.catbox.moe/jcoro6.gif)
 
 ![my hot babe... idk what that 3rd heart flag means js ignore](https://media.discordapp.net/attachments/1269877660163768322/1431673771348983850/12957708_8e843.gif?ex=68fe459a&is=68fcf41a&hm=c1c40797c40dbc670c024e60e4c4eaa9fa9119da170f7d3a508a27628f17992c&=&width=300&height=300)
+
+
+i copied @chance-time's readme. no shame 🥴
