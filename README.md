@@ -4,7 +4,7 @@
 
 ![name](https://i.postimg.cc/rmNrNBy8/IMG-6764.gif) .. my name is caleb , but you can call me collie !
 
-![my disc](https://i.postimg.cc/vZMYzTB7/IMG_3737.gif) .. @christianboyhole
+![my disc](https://i.postimg.cc/vZMYzTB7/IMG_3737.gif) .. @shok.wav
 
 
 ![blej](https://i.postimg.cc/h4TXtY3f/IMG_3529.gif) .. genderfluid , use any pronouns ^_^
