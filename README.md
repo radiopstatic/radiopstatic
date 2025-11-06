@@ -2,7 +2,7 @@
 
 
 
-![name](https://i.postimg.cc/rmNrNBy8/IMG-6764.gif) .. my name is caleb , but you can call me collie !
+![name](https://i.postimg.cc/rmNrNBy8/IMG-6764.gif) .. my name is caleb , but you can call me collie ! you can also call me a radiostatic truther from day one..
 
 ![my disc](https://i.postimg.cc/vZMYzTB7/IMG_3737.gif) .. @shok.wav
 
@@ -23,4 +23,4 @@
 ![my hot babe... idk what that 3rd heart flag means js ignore](https://media.discordapp.net/attachments/1269877660163768322/1431673771348983850/12957708_8e843.gif?ex=68fe459a&is=68fcf41a&hm=c1c40797c40dbc670c024e60e4c4eaa9fa9119da170f7d3a508a27628f17992c&=&width=300&height=300)
 
 
-i copied @bunnipaw's readme. no shame 🥴
+i copied @bunnipaw's readme. no shame 🥴 also they smell like piss and shit.. but you didn't hear that from me.
