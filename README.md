@@ -2,7 +2,7 @@
 
 
 
-![name](https://i.postimg.cc/rmNrNBy8/IMG-6764.gif) .. my name is caleb , but you can call me collie ! you can also call me a radiostatic truther from day one..
+![name](https://i.postimg.cc/rmNrNBy8/IMG-6764.gif) .. am i vox irl? maybe..
 
 ![my disc](https://i.postimg.cc/vZMYzTB7/IMG_3737.gif) .. @shok.wav
 
